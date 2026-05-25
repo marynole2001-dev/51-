@@ -5,9 +5,9 @@ https://51cmtv.com
 #
 51春梦官方频道：https://t.me/shipin51_11
 #
-51春梦官方1群：
+51春梦官方1群：https://t.me/k51cmoffical
 #
-51春梦热瓜讨论群：
+51春梦热瓜讨论群：https://t.me/k51cmchigua
 #
 ——————51春梦 联系我们——————
 #
