@@ -23,7 +23,7 @@ https://51cmtv.com
 #
 方法1 ：发任意邮件至51春梦官方邮箱：get@51cmtv.com
 #
-方法2：关注51春梦最新地址发布页：https://gitlab.com/i51shipin/51shipin
+方法2：关注51春梦最新地址发布页：[https://gitlab.com/i51shipin/51shipin](https://github.com/marynole2001-dev/51-)
 #
 方法3：关注51春梦twitter：https://x.com/51cmtv
 #
